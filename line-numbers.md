@@ -8,7 +8,7 @@
 #### 8
 #### 9 GitHub is really awesome.
 #### 10
-#### 11 kanye east, snoop cat, da adult
+#### 11 le gasp, thats crazy kanye east, snoop cat, da adult
 #### 12
 #### 13
 #### 14
